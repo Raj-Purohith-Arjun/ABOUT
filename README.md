@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on web development,andriod development
 - 📫 How to reach me 
 -  ph:9014943620
+-  whatsapp:9676807518
 - mail me: arjunsingh10a@gmail.com
 
 
